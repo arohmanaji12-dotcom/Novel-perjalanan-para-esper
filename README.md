@@ -715,7 +715,174 @@ Dengan enggan, Chandra bersiap menggendong Zenki. "Mau tak mau, aku harus membaw
 Namun, dalam benaknya, sebuah kesadaran baru mulai tumbuh-ternyata, bukan hanya dirinya yang memiliki kemampuan spesial. Dan ini hanya akan membuat segalanya semakin rumit.
 
 </p></div>
-  <div id="bab3" class="section"><h2>Bab 3</h2><p>Isi Bab 3 di sini...</p></div>
+  <div id="bab3" class="section"><h2>Bab 3</h2><p>Setelah kejadian kemarin sore menjelang malam, Chandra masih diliputi kegelisahan. Meskipun ia berhasil bertarung dan selamat, perasaan tak berdaya terus menghantuinya. Nyatanya, jika bukan karena Zenki, mereka mungkin sudah tidak ada di dunia ini. Fakta bahwa Zenki sampai harus mengerahkan seluruh kekuatannya hingga pingsan membuat Chandra sadar-mereka masih terlalu lemah. Jika ancaman lain muncul, apakah mereka benar-benar bisa bertahan?
+
+Di dalam kamar Chandra, Zenki perlahan membuka mata. Rasa sakit menjalar di seluruh tubuhnya, seolah setiap otot menolak untuk bergerak. Nethermind memang kuat, tapi efek sampingnya terlalu besar. Ia harus memahami batas kemampuannya-bagaimana menggunakannya dengan lebih efisien tanpa mengorbankan tubuhnya sendiri.
+
+Zenki mencoba bangkit, namun tubuhnya masih lemah. Saat ia berusaha berdiri, pandangannya berputar, dan lututnya hampir menyerah. Sempoyongan, ia bertumpu pada dinding, mengatur napas yang terasa berat. Keringat dingin mengalir di pelipisnya. Ini bukan sekadar kelelahan-ini adalah peringatan bahwa ia belum siap menghadapi pertarungan yang lebih besar.
+
+Chandra masih merasa khawatir dengan keadaan Zenki. Ia membawa sepiring nasi dengan lauk ayam dan berjalan menuju kamar temannya. Saat pintu terbuka, Chandra terkejut melihat Zenki yang berusaha bangkit dari tempat tidur.
+
+Dengan sigap, ia segera menghampiri Zenki dan menopang tubuhnya agar kembali berbaring. "Hei, jangan memaksakan diri. Kau belum sepenuhnya pulih," tegurnya dengan nada khawatir.
+
+Zenki menunduk sedikit sebelum menjawab pelan, "Aku hanya tidak ingin merepotkanmu."
+
+Chandra menghela napas dalam-dalam, lalu menatapnya dengan ekspresi yang sulit dijelaskan. "Kau tahu nggak, kalau kemarin kau nggak menggunakan kekuatanmu sepenuhnya, mungkin nyawa kita sudah melayang. Kita bahkan nggak akan ada di sini sekarang," ucapnya, suaranya terdengar lebih tegas dari yang ia maksudkan. Namun, wajahnya sedikit memerah karena malu.
+
+Sejenak, keheningan menyelimuti mereka. Lalu, dengan suara lebih pelan, Chandra melanjutkan, "Dan... aku juga minta maaf. Kemarin, aku nggak bisa berbuat banyak. Seandainya aku bisa melakukan sesuatu lebih dari itu, mungkin kondisimu nggak akan seburuk ini. Maafkan aku, Zenki."
+
+Tatapannya merunduk, rasa bersalah mengendap di dadanya. Zenki menghela napas sejenak sebelum berkata dengan nada pelan, berusaha menenangkan perasaan Chandra, "Soal itu jangan dipikirkan. Lagipula, apa yang kau lakukan sudah sangat baik. Coba bayangkan jika kau tidak menahan makhluk itu, mungkin aku tak akan punya cukup waktu untuk memasuki dunia Nethermind."
+
+Mendengar ucapan Zenki, Chandra perlahan mengangkat kepalanya kembali. Senyum tipis terukir di wajahnya.
+
+"Oh iya, aku bawa makanan untukmu. Jangan sungkan, silakan dimakan," tutur Chandra pelan.
+
+Zenki menerima piring itu dan mulai makan perlahan, suapan demi suapan. Rasa hangat dari makanan itu sedikit mengurangi kelelahan dalam tubuhnya.
+
+"Ini enak. Siapa yang memasak ayamnya?" tanya Zenki heran.
+
+"Oh, itu aku yang memasaknya sendiri," jawab Chandra sambil memainkan selembar kertas dengan kemampuannya. "Kebetulan ibuku sedang berada di luar kota selama satu bulan ke depan. Dia dapat panggilan kerja mendadak."
+
+Zenki mengangguk kecil, mencerna informasi tersebut. "Jadi ibumu sedang di luar kota, ya... satu bulan..." Ia terdiam sejenak, pikirannya berputar, mencari ide tentang apa yang bisa mereka lakukan dalam waktu tersebut.
+
+Tiba-tiba, matanya berbinar penuh semangat. "Aku rasa kita bisa latihan!" serunya antusias.
+
+"T-tunggu, maksudnya apa? Latihan?" tanya Chandra dengan kaget dan heran. "Aku sih setuju saja kalau kau menyarankan untuk melatih kemampuan kita ini, tapi kau tidak memikirkan sekolah? Bagaimana dengan nilai kita?" celetuknya dengan nada sedikit kesal.
+
+Sebenarnya, Chandra setuju dengan saran Zenki, tetapi ia juga sadar bahwa dirinya tetaplah manusia biasa yang harus menyelesaikan pendidikannya. Tidak mungkin dalam waktu sebulan ia malah bolos sekolah, karena itu akan berdampak buruk pada nilainya.
+
+"Bagaimana kalau kita membagi waktu?" ujar Zenki dengan penuh percaya diri. "Kita bisa menjalani aktivitas normal dari pagi hingga sore, lalu setelah pulang sekolah, kita berlatih mengembangkan kemampuan kita. Lagi pula, kalau tidak salah, bulan ini sekolah akan banyak libur karena adanya ujian penilaian sekolah," tambahnya berusaha meyakinkan Chandra sepenuh hati.
+
+"Aku rasa usulmu tidak buruk, aku setuju," jawab Chandra, lalu menyipitkan mata penuh curiga. "Tapi... dari mana kau tahu kalau kita akan banyak libur karena ujian sekolah?" tanyanya heran.
+
+Zenki terkekeh sambil melirik Chandra dengan ekspresi mengejek. "Aduh, kau ini benar-benar tidak peka dengan kemampuan temanmu sendiri, ya?" godanya dengan senyum sinis.
+
+Sebelum Chandra sempat membalas, Zenki melanjutkan dengan nada serius. "Nethermind adalah kemampuan yang memungkinkan seseorang memiliki dua kesadaran-satu berada di dunia nyata, satu lagi di dunia spiritual. Di dunia nyata, aku bisa membaca pikiran seseorang dan merasakan aura emosi mereka, entah itu bahagia, sedih, marah, atau lainnya. Sedangkan di dunia spiritual, aku dapat merasakan keberadaan makhluk tak kasat mata dan menggunakan kekuatan penuhkku. Namun, aku masih belum mahir mengendalikannya. Setiap kali menggunakan Nethermind sepenuhnya, tubuhku terasa seperti ingin hancur," jelasnya dengan sorot mata tajam ke arah Chandra.
+
+Chandra, yang sejak tadi menyimak, mengangguk pelan. "Oh, jadi itu dasar kekuatanmu... Tapi aku masih belum sepenuhnya mengerti," katanya ragu. "Terutama karena aku sendiri juga belum memahami cara kerja kemampuanku sepenuhnya. Kadang-kadang aku hanya bisa menggerakkan kertas atau benda kecil seperti ini, tapi saat dalam keadaan terdesak, aku mampu mengendalikan dan menggenggam benda-benda seolah memiliki tangan yang lebih panjang. Aku tidak benar-benar mengerti bagaimana mekanismenya. Yang kutahu, kemampuanku disebut telekinesis," jelasnya dengan nada bimbang.
+
+Zenki terdiam sejenak, mencerna penjelasan Chandra. Ada sesuatu yang terasa janggal baginya. Setelah berpikir sejenak, sebuah pertanyaan terlintas di benaknya.
+
+"Oh, soal itu... kau mendapatkan kemampuan ini dari mana?" tanya Zenki dengan nada serius, matanya menatap Chandra tajam.
+
+"Aku mendapatkannya melalui latihan," jawab Chandra santai.
+
+Zenki semakin bingung. Ia hendak menanggapi, tetapi sebelum sempat berbicara, Chandra memotongnya, "Tunggu di sini, aku akan mengambil sesuatu dulu."
+
+Tanpa menunggu jawaban, Chandra berjalan menuju lemari bukunya. Zenki hanya bisa menatapnya dengan penuh kebingungan. Beberapa saat kemudian, Chandra kembali dengan sebuah buku tua yang tampak usang dan sudah lama berdebu.
+
+"Ini... buku yang membuatku memiliki kemampuan esper," ungkap Chandra sambil menyerahkan buku itu kepada Zenki.
+
+Zenki membuka buku tersebut, membalik halaman demi halaman, membaca beberapa bagian dengan penuh perhatian. Raut wajahnya semakin serius. Setelah membaca beberapa lembar, ia mengangkat kepalanya dan menatap Chandra dengan kebingungan.
+
+"Darimana kau mendapatkan buku ini?" tanyanya heran.
+
+Chandra mengambil kembali buku itu dari tangan Zenki, lalu menunjuk ke arah sebuah meja di sudut ruangan. "Buku ini kutemukan di dalam laci meja itu. Bentuknya sudah usang... dan setahuku, buku ini milik ayahku," jelasnya dengan nada sedikit muram.
+
+Zenki menatap meja itu dalam diam, pikirannya dipenuhi berbagai pertanyaan yang belum terjawab. Namun, untuk saat ini, ia lebih ingin fokus pada latihan mereka.
+
+"Oh, begitu... Lalu bagaimana dengan pembahasan tadi? Kau setuju, kan, kita tetap berlatih?" tanya Zenki, mengharapkan kepastian.
+
+"Hmm, kurasa aku bisa. Lagipula, kau boleh menginap di sini agar rumah ini terasa lebih ramai," jawab Chandra dengan senyum.
+
+Zenki menyeringai. "Kau ingin rumah ini terasa lebih ramai, atau sebenarnya kau hanya takut makhluk seperti tadi menyerang lagi?" godanya dengan tawa keras.
+
+"Hah, aku tidak selemah itu," sahut Chandra, mendengus. "Lebih baik kau istirahat sekarang. Aku juga ingin tidur. Lagi pula, besok kita libur, tidak ada sekolah."
+
+Dengan itu, Zenki dan Chandra memutuskan untuk beristirahat, membiarkan malam berlalu dalam ketenangan setelah peristiwa yang mereka alami.
+•
+•
+•
+
+Pagi itu, sinar matahari menerobos melalui celah jendela kamar Chandra, membanjiri ruangan dengan cahaya keemasan. Zenki mengerjap pelan, merasakan tubuhnya yang masih terasa berat setelah pertarungan kemarin. Di seberang ruangan, Chandra sudah terjaga, duduk di lantai sambil membuka-buka buku tua yang semalam mereka bicarakan.
+
+"Pagi," ujar Zenki dengan suara serak.
+
+Chandra menoleh, lalu tersenyum kecil. "Pagi. Gimana perasaanmu sekarang?"
+
+Zenki menggerakkan bahunya sedikit, merasakan nyeri yang masih tersisa. "Lebih baik, meskipun masih agak pegal."
+
+"Baguslah. Aku sudah membaca beberapa bagian dari buku ini lagi. Sepertinya ini bukan sekadar buku biasa. Ada beberapa simbol aneh yang aku belum mengerti," kata Chandra sambil menunjuk halaman yang penuh dengan tulisan dan diagram yang terlihat kuno.
+
+Zenki bangkit perlahan dan menghampiri Chandra. Ia memperhatikan halaman yang ditunjukkan. Mata ungunya menyipit, mencoba memahami simbol-simbol tersebut. "Aku pernah melihat sesuatu yang mirip ini dalam penglihatanku saat menggunakan Nethermind... Tapi aku tidak yakin."
+
+Chandra menghela napas. "Sepertinya kita harus menemukan seseorang yang bisa membaca ini. Mungkin ini bisa membantu kita memahami kekuatan kita dengan lebih baik."
+
+Zenki mengangguk setuju. "Tapi untuk saat ini, mari kita mulai latihan. Kau sudah setuju, kan?"
+
+Chandra tersenyum tipis. "Baiklah, tapi jangan memaksakan diri. Kita mulai dari yang ringan dulu."
+
+Mereka berdua melangkah keluar rumah menuju halaman belakang, yang cukup luas untuk latihan. Udara pagi masih segar, embun masih menggantung di dedaunan. Zenki berdiri di tengah halaman, mencoba merasakan energi Nethermind dalam dirinya, sementara Chandra mulai mengangkat beberapa benda kecil dengan telekinesisnya.
+
+"Baiklah, mari kita mulai dengan dasar-dasarnya. Aku ingin mencoba mengendalikan Nethermind tanpa efek samping berlebihan," kata Zenki sambil menutup mata.
+
+Chandra mengangguk dan mulai menggerakkan kertas-kertas yang ia siapkan, mencoba mengasah kendali halusnya terhadap telekinesis.
+
+Selama beberapa waktu, mereka berlatih dengan tenang. Zenki mencoba mengatur aliran energinya, membatasi keluarnya agar tidak langsung menguras tubuhnya. Chandra, di sisi lain, fokus pada meningkatkan presisi kendali telekinesisnya, berusaha menggerakkan objek lebih berat secara perlahan dan terkontrol.
+
+Di tengah latihan, Chandra tiba-tiba berhenti dan menatap Zenki dengan ragu. "Aku penasaran... Sebenarnya bagaimana kau bisa mendapatkan kekuatan Nethermind ini? Apakah kau juga menemukannya seperti aku menemukan buku ini?"
+
+Zenki membuka matanya dan menatap Chandra sejenak sebelum mengalihkan pandangannya ke langit. "Aku sendiri tidak sepenuhnya mengerti... Tapi aku tahu satu hal, ini bukan sesuatu yang kudapatkan secara kebetulan. Ada sesuatu di masa laluku yang memicu kekuatan ini bangkit, tapi aku belum bisa mengingat semuanya dengan jelas."
+
+Chandra mengangguk pelan, memahami bahwa Zenki mungkin menyimpan sesuatu yang lebih dalam tentang kekuatannya. "Kalau begitu, mungkin kita bisa mencari tahu bersama. Kita tidak hanya berlatih meningkatkan kekuatan, tapi juga memahami asal-usulnya."
+
+Zenki tersenyum tipis. "Itu ide yang bagus. Kalau kita bisa memahami asal mula kekuatan kita, mungkin kita bisa mengendalikannya dengan lebih baik."
+
+Chandra tersenyum dan kembali berkonsentrasi pada latihannya. Hari itu, mereka terus berlatih dengan serius, tanpa sadar bahwa perjalanan mereka baru saja dimulai.
+
+Saat latihan mereka semakin intens, Chandra dan Zenki mulai merasakan peningkatan dalam pengendalian kekuatan masing-masing. Chandra berhasil menggerakkan benda lebih besar dengan lebih presisi, sementara Zenki mulai menemukan cara untuk mengurangi efek samping dari Nethermind.
+
+Namun, ketenangan itu tidak berlangsung lama.
+
+Tiba-tiba, udara di sekitar mereka berubah. Angin bertiup lebih kencang, membawa serta aura yang tidak asing bagi Zenki. Ia merasakan tekanan yang sama seperti saat bertarung melawan makhluk misterius sebelumnya, namun kali ini, energinya terasa lebih terkendali-lebih manusiawi.
+
+"Kau merasakannya?" tanya Chandra, suaranya tegang.
+
+Zenki mengangguk. "Kita tidak sendirian."
+
+Sebuah suara menggema dari arah pohon di belakang mereka. "Jadi, kalian berdua yang membuat kehebohan belakangan ini?"
+
+Dari bayangan pepohonan, muncul sosok bertudung hitam. Tatapannya tajam, penuh dengan niat yang sulit diterka. Dalam sekejap, ia melesat ke arah mereka dengan kecepatan luar biasa.
+
+Zenki dan Chandra langsung bersiap. Chandra mengangkat beberapa batu dengan telekinesisnya, sementara Zenki berusaha mengaktifkan Nethermind tanpa kehilangan kendali.
+
+Tanpa basa-basi, sosok itu menyerang. Sebuah serangan energi meluncur ke arah mereka. Chandra buru-buru membentuk penghalang dengan menggerakkan beberapa papan kayu yang ada di sekitar, sementara Zenki melompat ke samping, menghindari serangan dengan susah payah.
+
+"Kalian lamban," ucap sosok itu dengan nada meremehkan. "Jika ini batas kemampuan kalian, lebih baik menyerah sekarang."
+
+Zenki menggeram, mengaktifkan Nethermind dalam skala kecil. Aura ungu mengelilingi tubuhnya, matanya bersinar tajam. "Siapa kau sebenarnya?" tanyanya dengan nada penuh kewaspadaan.
+
+Sosok itu tidak langsung menjawab. Ia hanya tersenyum tipis, lalu tiba-tiba menghilang dari pandangan. Dalam sekejap, ia muncul tepat di depan Chandra dan mendorongnya mundur dengan sebuah serangan gelombang energi yang tak terlihat. Chandra terhempas ke belakang, mendarat dengan keras di tanah.
+
+"Chandra!" teriak Zenki, mencoba berlari ke arahnya. Namun, sebelum ia bisa bergerak lebih jauh, sosok misterius itu sudah berdiri di hadapannya.
+
+"Kita akan bertemu lagi," bisiknya pelan, sebelum tiba-tiba menghilang secepat ia datang.
+
+Zenki dan Chandra terdiam, napas mereka terengah-engah. Serangan itu begitu cepat, begitu mendadak, hingga mereka bahkan tidak bisa membalas dengan baik.
+
+Chandra bangkit perlahan, menahan nyeri di tubuhnya. "Siapa... orang itu?"
+
+Zenki mengepalkan tangannya. "Aku tidak tahu... tapi yang jelas, dia tidak datang hanya untuk menguji kita. Dia punya tujuan."
+
+Chandra berusaha untuk bangkit ia bertanya sambil terbatuk "aku tidak begitu mengerti mengapa dia dapat menhilang dan timbul dalam sekejap mata?." 
+
+Zenki yang mendengar pertanyaan itu berusaha berpikir keras. Ia teringat tentang kemampuan kamuflase, tetapi masih belum bisa memastikan jenisnya.
+
+"Aku rasa orang tadi memiliki kemampuan untuk menghilang dan muncul kembali dalam sekejap... kemungkinan besar itu sejenis kamuflase," ujar Zenki dengan nada serius. "Tapi aku belum tahu pasti bagaimana cara kerjanya. Bisa jadi dia memanipulasi cahaya, memasuki dimensi lain, atau mungkin sesuatu yang lebih kompleks dari itu, namun sekilas aku dapat merasakan suatu aura saat dia menghilang."
+
+Chandra mengusap lengan yang masih terasa nyeri akibat serangan sebelumnya. "Kalau begitu, kita harus mencari tahu lebih banyak... karena jelas dia bukan musuh biasa."
+
+Zenki mengangguk. "Ya... dan aku yakin ini bukan pertemuan terakhir kita dengannya."
+
+Chandra mengepalkan tangannya, matanya menyala penuh tekad. "Kalau orang itu muncul lagi, kita harus siap. Kita tidak bisa terus-menerus bertahan tanpa benar-benar memahami kemampuan kita."
+
+Zenki mengangguk, matanya menyipit tajam. "Setuju. Kita harus lebih kuat. Jika tidak, kita hanya akan menjadi mangsa berikutnya."
+
+Angin berembus pelan, membawa keheningan yang terasa berat. Mereka berdua tahu-latihan mereka baru saja berubah menjadi sesuatu yang lebih serius.
+
+Di kejauhan, sosok misterius itu berdiri di atas pohon, memperhatikan mereka dari bayang-bayang. Ia menyeringai tipis. "Sepertinya mereka masih bisa berkembang... Ini akan menarik."
+
+</p></div>
   <div id="bab4" class="section"><h2>Bab 4</h2><p>Isi Bab 4 di sini...</p></div>
   <div id="bab5" class="section"><h2>Bab 5</h2><p>Isi Bab 5 di sini...</p></div>
   <div id="bab6" class="section"><h2>Bab 6</h2><p>Isi Bab 6 di sini...</p></div>
