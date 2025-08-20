@@ -1,4 +1,4 @@
-<!DOCTYPE html> 
+
 <html lang="id">                            <!-- Splash Screen Awal -->
 <div id="splashScreen">
   <div id="splashContent">
