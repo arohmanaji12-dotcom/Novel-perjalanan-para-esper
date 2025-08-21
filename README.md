@@ -3511,6 +3511,10 @@ Dan matanya... seperti tahu lebih banyak dari yang dia izinkan dunia lihat.
       <button class="modal-btn" onclick="selectBab('bab9')">Bab 9</button>
       <button class="modal-btn" onclick="selectBab('bab10')">Bab 10</button>
       <button class="modal-btn" onclick="selectBab('bab11')">Bab 11</button>
+      <button class="modal-btn" onclick="selectBab('bab12')">Bab 12</button>
+      <button class="modal-btn" onclick="selectBab('bab13')">Bab 13</button>
+      <button class="modal-btn" onclick="selectBab('bab14')">Bab 14</button>
+  <button class="modal-btn" onclick="selectBab('bab15')">Bab 15</button>
       <button class="modal-btn" onclick="closeModal()">Tutup</button>
     </div>
   </div>
