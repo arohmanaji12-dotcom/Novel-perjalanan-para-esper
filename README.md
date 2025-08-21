@@ -3319,7 +3319,179 @@ Kael menatap mereka Chandra . Bibirnya terangkat sedikit.
 "Selamat datang... di resonance mu Chandra ."
 
 </p></div>
-  <div id="bab11" class="section"><h2>Bab 11</h2><p>Isi Bab 11 di sini...</p></div>
+  <div id="bab11" class="section"><h2>Bab 11</h2><p>Langit di atas Kyoku masih kelabu. Sisa hujan semalam mengendap di udara, menciptakan aroma tanah basah yang samar. Suara burung kecil yang hinggap di pagar besi taman sekolah berpadu dengan gemericik air got yang mengalir dari lorong belakang.
+
+Di kelas, Chandra bersandar di jendela. Pandangannya kosong menembus kaca yang buram oleh embun tipis. Di sebelahnya, Zenki asyik mencorat-coret halaman belakang buku catatannya dengan sketsa simbol spiral dan mata-mata abstrak.
+
+“Lo masih mikirin kabut yang kemarin?” tanya Zenki tanpa mengangkat kepala.
+
+Chandra hanya mengangguk pelan. “Dan kalimat terakhirnya juga… Tentang penjaga lama dan pilar.”
+
+Zenki akhirnya menutup bukunya. “Gue masih gak paham kenapa makhluk itu muncul di perumahan lo, bukannya langsung ke tempat-tempat spiritual kayak kuil atau rumah sakit.”
+
+Chandra belum sempat menjawab saat pintu kelas terbuka.
+
+Seorang siswi masuk dengan langkah ringan. Rambutnya pendek, sebahu, tergerai rapi meski sebagian sisi ditahan jepitan hitam. Ia mengenakan seragam yang sama dengan siswi lain, tapi caranya membawa diri berbeda—tenang, tidak mencolok, tapi mencuri perhatian.
+
+Chandra sempat menegakkan duduknya. Matanya mengikuti sosok itu yang berjalan menuju bangku kosong dua baris di depannya. Ia belum pernah melihat gadis itu sebelumnya.
+
+“Murid baru?” bisik Zenki.
+
+Sebelum Chandra sempat menjawab, guru wali kelas masuk dan langsung memperkenalkan, “Hari ini kita kedatangan teman baru. Silakan perkenalkan diri.”
+
+Siswi itu berdiri di depan kelas. Suaranya jernih, agak serak di ujung, tapi lembut.
+
+“Nama aku Mahira Fuzanara. Aku pindahan dari Sakuragaoka.”
+
+Chandra langsung menangkap nama itu. Mahira. Ada sesuatu yang terasa... hangat.
+
+“Selamat datang,” sambut sebagian besar siswa.
+
+Mahira tersenyum tipis. Matanya menyapu ruangan sebentar, lalu kembali ke tempat duduknya. Tapi, dalam sepersekian detik, pandangannya sempat bertemu dengan Chandra.
+
+Tatapan itu biasa. Tapi cukup untuk membuat dada Chandra bergemuruh sedikit.
+
+---
+
+Waktu istirahat, Chandra masih belum bisa menjelaskan kenapa tatapan itu terasa... familiar? Bukan seperti deja vu. Lebih seperti... suara dari lagu yang pernah didengar waktu kecil.
+
+Zenki menggoda, “Lo merhatiin dia terus dari tadi. Gak salah juga sih. Tapi hati-hati. Gue denger dari kelas sebelah, dia punya reputasi aneh di sekolah lamanya.”
+
+“Aneh gimana?”
+
+“Katanya bisa ngebaca orang. Kayak... ngerti isi kepala orang lain, atau ngerasain emosi terdalam. Ada yang bilang dia bisa tahu kalau lo bohong, cuma dari ngelirik.”
+
+Chandra mendengus. “Hoax, paling.”
+
+Namun, saat mereka lewat depan taman kecil di sisi selatan sekolah, mereka melihat Mahira duduk sendirian di bawah pohon sakura, membaca buku kecil bersampul hitam.
+
+Chandra melambat. Langkahnya terhenti. Entah kenapa, ia merasa... ingin menyapa.
+
+“Lo mau nyamperin?” tanya Zenki.
+
+Chandra mengangguk pelan. “Gue cuma mau... kenalan.”
+
+Zenki mengangkat alis, lalu memberi isyarat ‘go ahead’.
+
+---
+
+“Eh... Hai.”
+
+Mahira mendongak dari bukunya. “Kamu Chandra, kan?”
+
+Langkah Chandra nyaris terhenti. “Kamu... tahu nama gue?”
+
+Mahira mengangguk pelan. “Wali kelas nyebutin waktu absen tadi. Tapi...” ia menatap langsung ke mata Chandra, “...aku rasa aku memang akan ngobrol sama kamu hari ini.”
+
+“Hah?”
+
+“Tadi pas masuk kelas, ada sesuatu di aura kamu. Kayak... riak gelombang yang belum selesai.”
+
+Chandra nyengir canggung. “Kamu ngomong kayak Zenki.”
+
+“Zenki?”
+
+“Teman sebangku gue. Dia juga suka ngomongin hal-hal aneh. Dunia bawah sadar lah, spiral lah.”
+
+Mahira tersenyum kecil. “Mungkin kami satu frekuensi.”
+
+Chandra ikut duduk di sebelahnya. Hening sebentar. Lalu ia tanya, “Boleh tahu buku apa itu?”
+
+Mahira memperlihatkan sampulnya. Tidak ada judul.
+
+“Catatan pribadi,” jawabnya. “Isinya... hal-hal yang orang lain gak bisa lihat.”
+
+Chandra mengangguk perlahan. Di kepalanya, pertanyaan demi pertanyaan muncul. Tapi juga keinginan—aneh, tidak mendesak, tapi tulus—untuk mengenal gadis ini lebih dalam.
+
+Mereka mengobrol beberapa menit. Tentang perpustakaan. Tentang teh favorit. Tentang hujan.
+
+Dan Chandra menyadari sesuatu. Bahwa perasaannya tidak meledak. Tidak seperti kisah di novel atau drama. Tapi pelan. Menyusup seperti udara pagi. Mengisi ruang kosong tanpa paksaan.
+
+Ketika bel tanda akhir istirahat berbunyi, Mahira berdiri duluan.
+
+“Sampai nanti, Chandra.”
+
+“Eh... iya.”
+
+Ia berjalan menjauh.
+
+Dan untuk pertama kalinya dalam waktu lama, Chandra tersenyum karena alasan yang... tidak berhubungan dengan kekuatan, bahaya, atau pilar apa pun.
+
+-----
+
+Chandra berjalan kembali ke kelas dengan langkah ringan, sesuatu yang bahkan ia sendiri tidak sadari. Di kepalanya, suara Mahira terngiang seperti melodi sederhana yang sulit dilupakan.
+
+Zenki menunggu di bangkunya, kaki disilang di atas kursi. “Lama juga ngobrolnya, Romeo.”
+
+“Biasa aja, Zenk.”
+
+Zenki terkekeh. “Dari jauh sih kelihatannya nggak biasa. Lo keliatan kayak anak SD yang baru kenal rasa manis es krim vanilla.”
+
+Chandra melempar tatapan malas, lalu duduk. Tapi dalam hati, ia tahu... memang ada rasa manis yang baru.
+
+---
+
+Sepulang sekolah, langit Kyoku mulai cerah, meninggalkan awan tipis yang menggantung ringan. Chandra dan Zenki berjalan menyusuri trotoar menuju halte, saat sebuah suara memanggil dari belakang.
+
+“Chandra!”
+
+Mereka berbalik. Mahira berdiri beberapa meter di belakang, masih mengenakan seragam, membawa tas ransel di punggungnya. “Kalian pulang lewat sini juga?”
+
+“Iya,” jawab Chandra cepat. “Kamu... mau bareng?”
+
+Mahira mengangguk. “Kalau nggak ngerepotin.”
+
+Mereka berjalan bertiga. Zenki di sisi paling kiri, Chandra di tengah, dan Mahira di kanan. Obrolan ringan mengalir, kadang tentang makanan favorit, kadang tentang mata pelajaran yang membosankan.
+
+Namun di tengah percakapan, Mahira berhenti mendadak.
+
+Chandra menoleh. “Kenapa?”
+
+Mahira menatap ke sebuah tembok tua di pinggir jalan—tampak biasa, tapi ia menajamkan pandangan seperti sedang mendengarkan sesuatu yang tak terdengar.
+
+“Kalian nggak denger apa-apa?” tanyanya pelan.
+
+Zenki ikut berhenti. “Denger apaan?”
+
+“Suara tangisan kecil... kayak dari balik tembok itu.”
+
+Chandra dan Zenki saling pandang. Tidak ada apa-apa di sana, hanya dinding batu tua, sebagian diplester dengan semen kasar.
+
+Mahira melangkah lebih dekat, menyentuhkan telapak tangan ke permukaannya. Hening. Lalu ia menarik napas dan bergumam, “Bukan suara yang biasa.”
+
+Zenki mendekat, kali ini lebih waspada. “Kamu sering denger suara kayak gitu?”
+
+Mahira menatap mereka bergantian. “Kadang. Tapi bukan suara nyata. Lebih seperti... memori yang terjebak.”
+
+Chandra menyipitkan mata. “Kamu juga... punya semacam kekuatan?”
+
+Mahira tidak langsung menjawab. Ia hanya tersenyum tipis. “Mungkin. Tapi aku nggak nyebut itu kekuatan. Lebih kayak... beban yang nggak semua orang mau punya.”
+
+Lalu ia mundur dua langkah, seolah menghormati batas tak terlihat. “Tapi suara itu nggak jahat. Cuma... kesepian.”
+
+Zenki menghela napas. “Oke, ini udah mulai mistis. Fix, lo cocok nongkrong sama kita.”
+
+Mahira tertawa kecil. Tawa yang membuat Chandra sekali lagi merasakan kehangatan aneh—rasa ingin tahu yang tumbuh perlahan.
+
+---
+
+Malamnya, di rumah, Chandra berbaring di kamarnya, memandangi langit-langit. Kael sedang keluar, dan Zenki sibuk membaca lagi buku warisan mereka di ruang tengah.
+
+Namun yang mengganggu pikirannya bukan bayangan, bukan makhluk spiritual, bukan teka-teki pilar...
+
+Tapi senyum Mahira saat berkata: “Cuma... kesepian.”
+
+Ia tidak tahu mengapa, tapi kalimat itu seperti menyentuh bagian dalam dirinya yang sudah lama ia lupakan. Sesuatu sebelum kekuatan. Sebelum entitas gelap. Sebelum Telekinesis.
+
+Sesuatu yang manusiawi.
+
+Dan untuk pertama kalinya sejak semuanya dimulai, Chandra menulis bukan tentang kekuatan, bukan tentang simbol, tapi:
+
+> Mahira.
+Senyumnya seperti pagi.
+Dan matanya... seperti tahu lebih banyak dari yang dia izinkan dunia lihat.
+
+</p></div>
 
   <div class="stars" id="stars"></div>
   <div id="portal"></div>
