@@ -401,9 +401,50 @@ Novel ini bukan hanya tentang pertarungan fisik. Ia adalah perjalanan spiritual,
 
   <div id="profil" class="section">
     <h2>Profil Karakter</h2>
-    <div class="card"><b>Chandra</b><br>Esper Telekinesis, seorang mc yang awalnya mengalami kebangkitan</div>
-    <div class="card"><b>Zenki</b><br>Esper Nethermind</div>
-    <div class="card"><b>Kael</b><br>Esper Duskform</div>
+    <div class="card"><b>Chandra</b><br>Chandra
+
+Kekuatan: Telekinesis
+
+Peran: Pemimpin alami (meski masih ragu-ragu).
+
+Status: Sedang berkembang, belajar mengendalikan emosi → kekuatan makin matang.
+
+Relasi:
+
+Zenki = sahabat & partner latihan.
+
+Kael = mentor bayangan, kadang sinis tapi peduli.
+
+Raka = musuh lama yang jadi titik evolusi kekuatannya.
+</div>
+    <div class="card"><b>Zenki</b><br>Zenki
+
+Kekuatan: Nethermind (telepati, masuk dunia spiritual, penyelamat jiwa).
+
+Batu: Ungu.
+
+Status: Baru mendapatkan batunya, lebih cepat berkembang dibanding Chandra.
+
+Relasi:
+
+Chandra = teman dekat, sering menyeimbangkan emosinya.
+
+Kael = agak curiga, tapi respek.
+</div>
+    <div class="card"><b>Kael</b><br>Kael Varuna
+
+Kekuatan: Duskform (kamuflase, menghilang).
+
+Batu: Hitam.
+
+Status: Mantan anggota Aetherion, sekarang semi-mentor.
+
+Relasi:
+
+Chandra & Zenki = murid tak resmi, kadang diuji keras.
+
+Aetherion = masa lalu kelam, penuh rahasia.
+</div>
   </div>
 
   <div id="esper" class="section">
