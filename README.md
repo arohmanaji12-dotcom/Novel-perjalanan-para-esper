@@ -3492,7 +3492,82 @@ Senyumnya seperti pagi.
 Dan matanya... seperti tahu lebih banyak dari yang dia izinkan dunia lihat.
 
 </p></div>
+</p></div>
+  <div id="bab11" class="section"><h2>Bab 11</h2><p>Pagi itu, langit Kyoku cerah tapi udara masih segar setelah hujan semalam. Chandra berjalan pelan ke kelas, masih memikirkan senyum Mahira kemarin. Sesuatu di tatapannya terasa berbeda—hangat, tenang, dan anehnya... membuatnya penasaran.
 
+Zenki menyusul di sampingnya, membawa buku catatan. “Lo masih melamun terus ya? Kayaknya si Mahira itu bikin lo tersihir, Bro.”
+
+Chandra mendengus. “Ah, biasa aja.”
+
+Namun ketika mereka memasuki kelas, Mahira sudah duduk di bangku depan, menatap jendela dengan ekspresi tenang. Rambutnya yang sebahu tertiup lembut oleh angin dari ventilasi. Chandra duduk di bangku tengah, sementara Zenki di sampingnya, dan entah kenapa pandangan mereka terus kembali ke Mahira.
+
+Saat guru mulai pelajaran, Mahira menulis sesuatu di buku bersampul hitamnya. Bukan simbol atau coretan abstrak, tapi catatan yang rapi, hampir seperti menyusun kata demi kata untuk dirinya sendiri. Sesekali, ia menatap Chandra dan Zenki, seakan membaca apa yang mereka rasakan.
+
+Chandra menoleh ke Zenki. “Gue rasa dia bisa ngerasa apa yang kita pikirin.”
+
+Zenki tersenyum tipis. “Kayaknya benar. Tapi jangan sampai ketahuan kita nyadar, nanti dia malah jadi... gimana gitu.”
+
+Waktu istirahat tiba, dan Mahira berdiri. Ia berjalan ke pojok kelas, mengambil sebotol air, lalu kembali ke tempat duduknya. Chandra dan Zenki mengikuti dari jauh, ingin melihat apakah dia akan bicara.
+
+“Tadi... kalian kemarin ngobrol cukup lama, ya?” tanya Mahira pelan, tanpa menatap langsung.
+
+“Y-ya,” jawab Chandra gugup. “Lumayan sih.”
+
+Mahira tersenyum tipis. “Aku senang bisa ngobrol. Biasanya aku nggak terlalu banyak bicara dengan orang baru secepat itu.”
+
+Zenki menyela dengan nada bercanda, “Wah, berarti lo cocok sama kita. Gak takut hal-hal aneh muncul.”
+
+Mahira menoleh sebentar, tersenyum, lalu menunduk kembali ke buku catatannya. “Bukan masalah takut atau tidak. Aku cuma... ingin tahu banyak hal, tapi dengan caraku sendiri.”
+
+Chandra memperhatikan detil itu, bagaimana Mahira menulis, menatap, dan menenangkan diri sendiri dengan kata-kata yang hanya ia baca. Sesuatu tentang gadis ini terasa... berbeda dari semua orang yang pernah ia temui.
+
+Saat bel pulang berbunyi, Mahira merapikan buku hitamnya dan berjalan ke pintu kelas. Chandra, yang tiba-tiba merasa ingin ikut dengannya, berdiri.
+
+“Eh… mau bareng keluar?” tanyanya.
+
+Mahira menatapnya, matanya jernih tapi hangat. “Boleh. Kalau lo nggak keberatan.”
+
+Di luar kelas, mereka berjalan bersama. Zenki di samping, kadang menyela percakapan ringan tentang hujan kemarin atau makanan favorit. Mahira mendengarkan, sesekali menimpali dengan komentar lembut, tapi selalu seolah menimbang setiap kata.
+
+Chandra menyadari, untuk pertama kalinya dalam beberapa minggu terakhir, pikirannya tidak dipenuhi oleh kekuatan, simbol, atau bahaya. Hanya Mahira, dan rasa ingin tahu yang perlahan tumbuh, nyaman tapi menggelitik.
+
+Zenki menepuk bahu Chandra saat mereka sampai di depan gerbang sekolah. “Lama-lama lo bakal nggak sadar kalo udah deket banget sama dia, Bro.”
+
+Chandra tersenyum tipis, menatap Mahira yang berjalan sedikit di depan mereka. “Mungkin… ya.”
+
+Dan di dalam hatinya, ia tahu—Bab baru perjalanan mereka baru saja dimulai. Bukan dengan pertarungan atau kekuatan, tapi dengan manusiawi yang sederhana: percakapan, tawa, dan rasa ingin tahu yang murni.
+
+Chandra, Zenki, dan Mahira berjalan menyusuri trotoar yang masih basah oleh hujan semalam. Angin lembut membuat daun-daun kecil bergoyang, dan aroma tanah basah memenuhi udara.
+
+Zenki, seperti biasa, mencoba menghidupkan suasana. “Jadi… Mahira, lo biasanya ngapain di sekolah lama lo?”
+
+Mahira tersenyum tipis, menatap ke depan. “Baca buku. Kadang membantu teman yang kesulitan. Dan… memperhatikan hal-hal yang orang lain abaikan.”
+
+Chandra menoleh ke Zenki, lalu tersenyum samar. “Lihat? Bukan sekadar gadis misterius. Dia perhatian juga.”
+
+Mahira menatap Chandra sebentar, seolah membaca isi pikirannya, kemudian tersenyum ringan. “Aku nggak cuma memperhatikan orang, tapi juga… aura di sekitar mereka. Kadang hal itu bisa bilang lebih banyak daripada kata-kata.”
+
+Chandra menelan ludah. Rasa ingin tahu yang tumbuh sejak pertemuan pertama semakin menguat. “Aura… maksud lo… kaya yang bisa ngerasain emosi orang lain?”
+
+Mahira mengangguk. “Ya, tapi bukan buat menyakiti. Aku cuma… ingin tahu. Tahu apa yang orang rasakan, kadang untuk membantunya, kadang untuk mengerti diri sendiri.”
+
+Zenki, yang biasanya cerewet, kali ini diam, memperhatikan interaksi mereka berdua dengan mata berbinar. “Wah… berarti lo bakal banyak bantu kita kalo ada hal-hal aneh muncul, ya?”
+
+Mahira menatap Zenki sekilas, lalu tersenyum. “Mungkin. Tapi bukan berarti aku selalu ngerti semuanya. Kadang aku juga harus belajar, sama seperti kalian.”
+
+Mereka terus berjalan, obrolan ringan berubah menjadi hening nyaman. Chandra memperhatikan cara Mahira melangkah, cara rambutnya tertiup angin, dan bagaimana ia menanggapi dunia di sekitarnya dengan perhatian tapi tanpa terburu-buru.
+
+Sesampainya di perempatan dekat halte, Mahira berhenti sejenak. Ia menatap Chandra dan Zenki. “Besok… aku rasa kita bisa duduk bersama di kelas. Aku ingin ngobrol lebih banyak.”
+
+Chandra tersenyum, jantungnya berdetak sedikit lebih cepat. “Iya… tentu saja.”
+
+Zenki menepuk bahu Chandra dengan riang. “Lihat? Lo nggak sendirian lagi. Ada partner misterius baru yang bikin lo penasaran.”
+
+Mahira tersenyum tipis, dan untuk Chandra, senyum itu terasa seperti cahaya hangat yang lembut—pelan tapi jelas menerobos kabut di pikirannya.
+
+Mereka berpisah di halte. Chandra menunggu bus sambil menatap ke langit, masih merenungi pertemuan hari itu. Suasana hati yang aneh tapi nyaman membuatnya sadar, perjalanan sebagai pilar baru bukan hanya soal kekuatan atau ancaman, tapi juga tentang manusia dan koneksi yang ia temui di sepanjang jalan.
+
+Dan untuk pertama kalinya sejak banyak hal berubah dalam hidupnya, Chandra merasa… ada sesuatu yang layak dinantikan besok.</p></div>
   <div class="stars" id="stars"></div>
   <div id="portal"></div>
 
